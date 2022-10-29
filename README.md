@@ -13,4 +13,4 @@ Areli Yesareth Guerrero Estrada aguerreroe2022@cic.ipn.mx
 
 Brian García Sarmina brian.garsar.6@gmail.com
 
-Miguel Alejandro Median Armendariz mmedinaa2022@cic.ipn.mx
+Miguel Alejandro Median Armendariz miguelalemedina@gmail.com
